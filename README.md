@@ -1,1 +1,0 @@
-# zeroheat0930.github.io
